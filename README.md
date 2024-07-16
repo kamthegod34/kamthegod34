@@ -1,0 +1,7 @@
+- 👋 Hi, I’m @kamthegod34
+- 👀 I’m interested in any kind of programming language and I like creating projects
+- 🌱 I’m currently learning both front end and python
+- 💞️ I’m looking to collaborate on any open-source projects or cool initiatives
+- 📫 How to reach me just contact at my Linkedin at Alvaro Balbin Ugalde
+- 😄 Pronouns: he/him
+- ⚡ Fun fact: I love going to the gym 
